@@ -1,1 +1,1 @@
-Noel Joseph Canlas
+Noel Canlas
